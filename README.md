@@ -4,6 +4,6 @@
 .Javascript
 .Ruby
 - 📫 How to reach me: beatmwenje@gmail.com
-- 😄 Pronouns: .bitris
+- 😄 Pronouns:She/her
 
 
