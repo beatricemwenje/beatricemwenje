@@ -7,5 +7,6 @@
 
 
 
-css3 figma html5 javascript
+![image](https://github.com/beatricemwenje/beatricemwenje/assets/118349635/6c9bfd50-af23-4b75-b9dc-ed516e3d1d10)
+
 
