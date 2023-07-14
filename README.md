@@ -13,4 +13,5 @@
 - 😄 Pronouns:She/her
 
 
+![image](https://github.com/beatricemwenje/beatricemwenje/assets/118349635/cb69c243-ea94-41cc-96e5-6763cde4a4d8)
 
